@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **precilla.abrazaldo@gmail.com**
 
-- ⚡ Fun fact **I don't give a fact.**
+- ⚡ Fun fact **I don't give a fact. Joke lang. I love reading novels and manhwas. Also I am a pro player in my dreams.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
